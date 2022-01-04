@@ -1,6 +1,6 @@
 ### Olá! Eu sou o Zighs.
 
-- 🌱 Cursando Ciência da Computação.
+- 🌱 Cursando Wly.
 
 
 
