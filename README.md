@@ -1,4 +1,4 @@
-### Olá! Eu sou o Zighs.
+### Olá!.
 
 - 🌱 Cursando Wly.
 
